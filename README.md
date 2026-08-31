@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 i am a Student
 
 
